@@ -12,7 +12,7 @@
           ´                                                                               /sohmd/+hmmdyso++++:´        
                            ´                                               ´  ´         :s+ymmmdhyoosydhhs+/-:´-       
                                          ´             ´            ´        ´          --hmmhoyyymmmmmmmmmmmddsssoo/.´
-                                         Wait, It's All ASCII?    ´   ´ ´     ´      ´   ´ss/+ymmmmNmmmmNmmmmdhs...:smy
+                                         Wait, It's all ASCII?    ´   ´ ´     ´      ´   ´ss/+ymmmmNmmmmNmmmmdhs...:smy
          ´                                ´     ´   ´                        ´            .-/dmNmNmmmmmmmmmmmddm/ ´:ymd
              ´               ´                   :shmmdy+´  ´     ´      ´.-´     .´       /hydmmmysysyhhyymmhyyhomNNNm
                        ´´                    ´  odNNNmmdds         :+syhhmNd+´           .ydhydhmmo+++syyyymdy-yodmNNNN
