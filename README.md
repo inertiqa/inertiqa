@@ -35,5 +35,3 @@
                           ´ ´´ ´    ´ -hmmy+dmdo                            ´         :dmmmhhmdmdddmmmmhmd:o.    ´ .h
         ´                   ´        .mmNmsdmmmh                                       :ydhmmmdddmmmdhyhy:´ ´.     -m
 ```
-
-<img src="https://visitor-badge.glitch.me/badge?page_id=ooqq.ooqq" alt="it's 1990 again"/>
